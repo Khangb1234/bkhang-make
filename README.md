@@ -1,6 +1,6 @@
 ## Notification !
 
-Lưu Ý! Đây Là Sản Phẩm Được Horizon Remake ( Chính Bởi Facebook-Chat-Api Của Schmavery, Tác Giả Không Chịu Trách Nghiệm Nào ! ), Nếu Có Lỗi Hãy Thử Sử Dụng Sang Sản Phẩm Khác !
+Lưu Ý! Đây là t leak của ông fca ,Đây Là Sản Phẩm Được Horizon Remake ( Chính Bởi Facebook-Chat-Api Của Schmavery, Tác Giả Không Chịu Trách Nghiệm Nào ! ), Nếu Có Lỗi Hãy Thử Sử Dụng Sang Sản Phẩm Khác !
 
 ## Support For : 
 
